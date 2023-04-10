@@ -1,1 +1,2 @@
 Christopher Irwin
+irwinch@oregonstate.edu
